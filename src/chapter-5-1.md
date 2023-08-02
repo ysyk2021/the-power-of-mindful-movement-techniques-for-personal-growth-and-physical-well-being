@@ -1,4 +1,4 @@
-Chapter 11: Strategies for Using Mindful Movement to Improve Physical Health
+Strategies for Using Mindful Movement to Improve Physical Health
 ============================================================================
 
 In this chapter, we will explore strategies for using mindful movement to improve your physical health. Mindful movement practices can have a transformative impact on your well-being by promoting strength, flexibility, cardiovascular health, and overall physical vitality. By incorporating these strategies into your routine, you can harness the power of mindful movement to enhance your physical health.

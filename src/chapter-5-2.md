@@ -1,4 +1,4 @@
-Chapter 10: Techniques for Addressing Specific Physical Conditions through Mindful Movement
+Techniques for Addressing Specific Physical Conditions through Mindful Movement
 ===========================================================================================
 
 In this chapter, we will explore techniques for using mindful movement to address specific physical conditions. Whether you're dealing with chronic pain, injuries, or specific health concerns, incorporating mindful movement can provide relief, promote healing, and enhance your overall physical well-being.

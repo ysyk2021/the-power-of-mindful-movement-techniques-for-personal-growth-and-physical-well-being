@@ -1,4 +1,4 @@
-Chapter 12: Creating a Mindful Movement Practice Plan
+Creating a Mindful Movement Practice Plan
 =====================================================
 
 In this chapter, we will explore the process of creating a mindful movement practice plan that fosters personal growth and enhances physical well-being. By establishing a structured and intentional routine, you can cultivate a sustainable and transformative relationship with mindful movement.

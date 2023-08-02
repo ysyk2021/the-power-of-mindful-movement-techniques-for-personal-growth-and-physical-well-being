@@ -1,4 +1,4 @@
-Chapter 10: The Role of Community in Mindful Movement
+The Role of Community in Mindful Movement
 =====================================================
 
 In this chapter, we will explore the vital role that community plays in mindful movement practices. While mindfulness can be practiced individually, engaging in mindful movement within a supportive and like-minded community can amplify the transformative benefits. Being part of a community dedicated to mindful movement can foster connection, inspiration, and personal growth, enhancing both your practice and overall well-being.

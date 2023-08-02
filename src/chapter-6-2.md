@@ -1,4 +1,4 @@
-Chapter 8: Techniques for Using Mindful Movement to Manage Stress, Anxiety, and Depression
+Techniques for Using Mindful Movement to Manage Stress, Anxiety, and Depression
 ==========================================================================================
 
 In this chapter, we will explore various techniques for using mindful movement to manage stress, anxiety, and depression. Mindful movement practices not only enhance physical well-being but also provide valuable tools for promoting mental and emotional health. By incorporating mindfulness into our movements, we can cultivate a sense of calm, reduce stress, and alleviate symptoms of anxiety and depression.

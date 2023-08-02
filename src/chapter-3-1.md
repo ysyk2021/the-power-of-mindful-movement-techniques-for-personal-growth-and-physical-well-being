@@ -1,4 +1,4 @@
-Chapter 8: Techniques for Mindful Breathing During Movement
+Techniques for Mindful Breathing During Movement
 ===========================================================
 
 In this chapter, we will explore various techniques for incorporating mindful breathing into your movement practice. Conscious breathing is a fundamental aspect of mindful movement, as it anchors our attention to the present moment, fosters mind-body connection, and enhances overall awareness. By integrating these techniques into your movement routines, you can deepen the benefits of mindfulness and experience a more profound sense of well-being.

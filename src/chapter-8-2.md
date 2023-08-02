@@ -1,4 +1,4 @@
-Chapter 11: Tips for Overcoming Obstacles in Mindful Movement
+Tips for Overcoming Obstacles in Mindful Movement
 =============================================================
 
 In this chapter, we will explore effective strategies and tips for overcoming common obstacles that may arise during your mindful movement practice. Overcoming these challenges is essential to maintaining consistency, deepening your practice, and experiencing the full benefits of mindful movement. By implementing these tips, you can navigate through obstacles and cultivate resilience, perseverance, and personal growth.

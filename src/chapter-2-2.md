@@ -1,4 +1,4 @@
-Chapter 5: The Impact of Mindful Movement on Physical and Mental Health
+The Impact of Mindful Movement on Physical and Mental Health
 =======================================================================
 
 In this chapter, we will explore the profound impact that mindful movement can have on both physical and mental health. By incorporating mindfulness into our movement practices, we can experience a wide range of benefits that promote overall well-being and personal growth.
