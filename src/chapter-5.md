@@ -26,6 +26,6 @@ Mindful movement can also be used to address specific physical conditions, such 
 
 By tailoring your mindful movement practice to address specific physical conditions, you can experience greater relief and improvement in your physical health.
 
-### Conclusion
+## Conclusion
 
 Mindful movement can be a powerful tool for improving physical health and well-being. By following strategies for safe and effective movement, and tailoring your practice to address specific physical conditions, you can experience greater mobility, reduced pain, and enhanced overall health. With regular practice and attention to your body's needs, mindful movement can help you live a healthier, more vibrant life.

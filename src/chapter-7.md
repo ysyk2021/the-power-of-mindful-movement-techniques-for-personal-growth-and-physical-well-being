@@ -28,6 +28,6 @@ Here are some steps for creating a plan for your mindful movement practice:
 
 By following these steps, you can create a mindful movement practice plan that is tailored to your goals and needs.
 
-### Conclusion
+## Conclusion
 
 Developing a mindful movement practice can be a powerful way to promote physical health, mental well-being, and personal growth. By incorporating mindful movement into daily life, and creating a plan that works for you, you can experience the many benefits of this practice. With time and commitment, mindful movement can become an integral part of your daily routine, helping you to live a more vibrant and fulfilling life.

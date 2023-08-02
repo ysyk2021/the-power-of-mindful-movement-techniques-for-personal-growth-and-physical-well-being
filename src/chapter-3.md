@@ -25,7 +25,7 @@ Stretching is an important part of any movement practice, and it can also be a p
 
 By practicing these techniques, you can deepen your connection to your body and experience greater physical and mental well-being.
 
-### Conclusion
+## Conclusion
 
 Mindful breathing and mindful stretching are two basic techniques for incorporating mindfulness into your movement practice. By bringing greater awareness to your breath and body, you can experience greater relaxation, focus, and physical well-being. With practice, these techniques can become an integral part of your daily routine, helping you to live a more mindful and fulfilling life.
 

@@ -18,22 +18,22 @@ Cultivating Awareness and Presence
 
 To build connections through mindful movement, we must first develop our own awareness and presence. By practicing mindfulness, we become more attuned to our own bodily sensations, thoughts, and emotions. This heightened self-awareness enables us to better understand and empathize with others.
 
-1. Partner Mindful Movement
+1\. Partner Mindful Movement
 ---------------------------
 
 Engaging in partner mindful movement exercises can be an excellent way to foster connections. Whether through yoga, dance, or other collaborative activities, partnering allows individuals to synchronize their movements, creating a sense of unity and shared purpose. Partner poses and mirroring exercises promote trust, cooperation, and mutual understanding.
 
-2. Active Listening through Movement
+2\. Active Listening through Movement
 ------------------------------------
 
 Another effective strategy for connecting with others through mindful movement is active listening. By incorporating movement into our communication, we can deepen our understanding of one another. Walking side by side or engaging in gentle movements while conversing can enhance our ability to actively listen and respond empathetically.
 
-3. Group Mindfulness Activities
+3\. Group Mindfulness Activities
 -------------------------------
 
 Group mindfulness activities provide opportunities for individuals to come together, fostering a sense of community and connection. Practicing meditation or gentle movement exercises as a group creates a shared experience, allowing participants to support one another on their personal growth journeys. These activities can be facilitated in various settings such as wellness retreats or community centers.
 
-4. Non-Verbal Communication
+4\. Non-Verbal Communication
 ---------------------------
 
 Mindful movement offers a non-verbal channel of communication that transcends language barriers. Through expressive movements like dance or Tai Chi, we can convey emotions, intentions, and connect with others on a deeper level. Non-verbal communication encourages us to attune to subtle cues and fosters understanding without the need for words.

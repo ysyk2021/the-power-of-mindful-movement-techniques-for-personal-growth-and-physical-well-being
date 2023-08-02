@@ -20,6 +20,6 @@ Here are some strategies for building connections with others through mindful mo
 
 By using these strategies, you can deepen your connection to others through mindful movement, and experience the many benefits of community.
 
-### Conclusion
+## Conclusion
 
 Mindful movement has the power to connect us with ourselves and others in meaningful ways. By participating in group classes, practicing with a partner, joining online communities, or organizing community events, we can build connections with others and experience greater joy and fulfillment. With mindfulness and intention, mindful movement can be a powerful tool for building community, promoting positive change, and living a more vibrant life.
