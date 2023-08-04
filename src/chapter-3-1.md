@@ -3,7 +3,7 @@ Techniques for Mindful Breathing During Movement
 
 In this chapter, we will explore various techniques for incorporating mindful breathing into your movement practice. Conscious breathing is a fundamental aspect of mindful movement, as it anchors our attention to the present moment, fosters mind-body connection, and enhances overall awareness. By integrating these techniques into your movement routines, you can deepen the benefits of mindfulness and experience a more profound sense of well-being.
 
-1. **Full Belly Breath**
+1\. **Full Belly Breath**
 ------------------------
 
 * Begin by taking a comfortable stance, grounding yourself in the present moment.
@@ -13,7 +13,7 @@ In this chapter, we will explore various techniques for incorporating mindful br
 * Focus on the sensation of breath entering and leaving your body, bringing your attention back whenever it wanders.
 * Repeat for several breaths, allowing each exhale to release tension and promote relaxation.
 
-2. **Counted Breathing**
+2\. **Counted Breathing**
 ------------------------
 
 * Find a steady rhythm in your movement, such as walking or flowing through yoga poses.
@@ -23,7 +23,7 @@ In this chapter, we will explore various techniques for incorporating mindful br
 * Pause for a count of four before inhaling again.
 * Continue this pattern of inhalation, retention, exhalation, and pause, finding a comfortable pace that suits your needs.
 
-3. **Breath Awareness Scan**
+3\. **Breath Awareness Scan**
 ----------------------------
 
 * Begin by standing or sitting comfortably, bringing your attention to your breath.
@@ -33,7 +33,7 @@ In this chapter, we will explore various techniques for incorporating mindful br
 * As you exhale, release any tension or tightness you may feel in that area, allowing it to relax.
 * Gradually scan through your entire body, from head to toe, bringing mindful awareness and relaxation to each breath.
 
-4. **Breath-Synchronized Movement**
+4\. **Breath-Synchronized Movement**
 -----------------------------------
 
 * Choose a movement activity such as yoga, tai chi, or dance.
@@ -42,7 +42,7 @@ In this chapter, we will explore various techniques for incorporating mindful br
 * Pay close attention to the transitions between movements, maintaining a smooth and continuous breath throughout the practice.
 * This technique enhances coordination, concentration, and mindfulness during physical activity.
 
-5. **Box Breathing**
+5\. **Box Breathing**
 --------------------
 
 * Sit or stand comfortably, finding a relaxed yet alert posture.
