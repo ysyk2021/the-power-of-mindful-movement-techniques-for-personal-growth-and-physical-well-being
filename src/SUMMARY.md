@@ -28,3 +28,4 @@
   - [The role of community in mindful movement](chapter-9-1.md)
   - [Strategies for building connections with others through mindful movement](chapter-9-2.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
