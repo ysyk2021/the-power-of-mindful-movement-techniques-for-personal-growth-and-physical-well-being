@@ -1,4 +1,4 @@
-Chapter 7: Tips for Overcoming These Obstacles
+Tips for Overcoming These Obstacles
 ==============================================
 
 In this chapter, we will explore various practical tips and techniques that can help you overcome obstacles you may encounter during your mindful movement journey. By implementing these strategies, you can enhance your personal growth and physical well-being. Let's dive in!
