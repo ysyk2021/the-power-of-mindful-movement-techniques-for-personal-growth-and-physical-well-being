@@ -3,8 +3,7 @@ Strategies for Building Connections with Others through Mindful Movement
 
 In this chapter, we will explore how mindful movement can be a powerful tool for building connections and fostering meaningful relationships with others. By engaging in mindful movement practices together, we can enhance our communication, empathy, and overall connection with those around us.
 
-Introduction
-------------
+
 
 As humans, we are inherently social beings, seeking meaningful connections with others. Mindful movement offers a unique pathway to establish and strengthen these connections. By being fully present in the moment and attuned to our own bodies, we can cultivate a deeper awareness of others and create a space for authentic connection.
 
