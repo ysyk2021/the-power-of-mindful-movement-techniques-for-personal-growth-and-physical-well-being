@@ -1,5 +1,3 @@
-Chapter 9: Connecting with Others Through Mindful Movement
-==========================================================
 
 In this chapter, we will explore how mindful movement can be used to connect with others and build community. By practicing together and sharing our experiences, we can deepen our understanding of ourselves and others, and experience greater joy and fulfillment.
 

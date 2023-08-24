@@ -1,5 +1,3 @@
-Techniques for Mindful Walking and Running
-=====================================================
 
 In this chapter, we will explore techniques for incorporating mindfulness into walking and running. Mindful walking and running can be powerful practices for cultivating presence, reducing stress, and enhancing the mind-body connection. By bringing awareness to each step, breath, and sensation, we can transform these everyday activities into opportunities for personal growth and well-being.
 

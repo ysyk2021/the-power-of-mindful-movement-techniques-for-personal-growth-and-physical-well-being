@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this chapter, we will introduce the concept of mindful movement and explore its benefits for personal growth and physical well-being.
 

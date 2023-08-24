@@ -1,5 +1,3 @@
-Chapter 7: Developing a Mindful Movement Practice
-=================================================
 
 In this chapter, we will explore how to develop a mindful movement practice that can be incorporated into your daily life. By committing to regular practice and creating a plan that works for you, you can experience the many benefits of mindful movement.
 

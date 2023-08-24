@@ -1,4 +1,3 @@
-# The Role of Community in Mindful Movement
 
 Community plays a vital role in the practice of mindful movement, fostering personal growth and enhancing physical well-being. In this chapter, we will explore how being part of a supportive community can deepen our mindfulness practice, provide inspiration and accountability, and create a sense of connection and belonging. By embracing the power of community, we can amplify the benefits of mindful movement and nurture our holistic well-being.
 

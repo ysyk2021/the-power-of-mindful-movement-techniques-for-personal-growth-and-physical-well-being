@@ -1,5 +1,3 @@
-Chapter 8: Overcoming Obstacles to Mindful Movement
-===================================================
 
 In this chapter, we will explore common obstacles to practicing mindful movement and provide tips for overcoming them.
 

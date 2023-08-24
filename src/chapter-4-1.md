@@ -1,5 +1,3 @@
-Incorporating Mindfulness into Yoga
-==============================================
 
 In this chapter, we will explore how to incorporate mindfulness into your yoga practice. Mindfulness is the practice of paying attention to the present moment with non-judgmental awareness. By integrating mindfulness into your yoga practice, you can deepen your mind-body connection, enhance self-awareness, and experience a greater sense of overall well-being.
 

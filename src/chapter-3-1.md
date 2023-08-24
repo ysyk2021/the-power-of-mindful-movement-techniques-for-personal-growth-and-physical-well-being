@@ -1,4 +1,3 @@
-# Techniques for Mindful Breathing During Movement
 
 Mindful breathing during movement is a powerful practice that enhances both our physical well-being and our ability to cultivate mindfulness. In this chapter, we will explore various techniques for incorporating mindful breathing into our movement practices. By combining intentional breathing with physical activity, we can deepen our mind-body connection, reduce stress, and experience a greater sense of presence and inner calm.
 

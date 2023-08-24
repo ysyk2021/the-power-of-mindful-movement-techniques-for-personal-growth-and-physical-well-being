@@ -1,5 +1,3 @@
-Techniques for Mindful Stretching
-===============================================================================
 
 In this chapter, we will explore basic mindful movement techniques that involve incorporating mindfulness into stretching. Mindful stretching can help improve flexibility and range of motion while promoting mental relaxation and stress reduction.
 

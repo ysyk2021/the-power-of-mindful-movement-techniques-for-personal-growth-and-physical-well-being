@@ -1,5 +1,3 @@
-Defining Mindful Movement
-====================================
 
 In this chapter, we will explore the concept of mindful movement and its significance in personal growth and physical well-being. Mindful movement refers to the practice of integrating mindfulness and awareness into our movements, allowing us to fully experience and engage with our bodies and the present moment. By bringing conscious attention to our movements, we can cultivate a deeper mind-body connection, enhance our physical capabilities, and promote overall well-being.
 

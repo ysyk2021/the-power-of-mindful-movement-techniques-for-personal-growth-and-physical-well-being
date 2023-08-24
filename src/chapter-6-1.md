@@ -1,5 +1,3 @@
-The Impact of Mindful Movement on Mental Health
-==========================================================
 
 In this chapter, we will explore the profound impact that mindful movement techniques have on mental health. Engaging in mindful movement practices not only benefits physical well-being but also provides powerful tools for promoting mental and emotional well-being. By incorporating mindfulness into our movements, we can alleviate symptoms of stress, anxiety, and depression and enhance our overall mental health.
 

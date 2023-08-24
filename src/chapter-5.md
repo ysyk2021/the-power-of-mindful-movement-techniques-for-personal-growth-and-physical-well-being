@@ -1,5 +1,3 @@
-Chapter 5: Mindful Movement for Physical Health
-===============================================
 
 In this chapter, we will explore how mindful movement can be used to improve physical health and address specific physical conditions. By bringing greater awareness to our bodies and movements, we can reduce pain, improve mobility, and enhance overall physical well-being.
 

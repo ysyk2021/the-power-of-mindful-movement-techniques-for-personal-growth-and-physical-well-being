@@ -1,5 +1,3 @@
-Chapter 2: Understanding Mindful Movement
-=========================================
 
 In this chapter, we will define mindful movement and explore its impact on physical and mental health.
 

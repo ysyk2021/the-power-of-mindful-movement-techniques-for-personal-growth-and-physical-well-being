@@ -1,5 +1,3 @@
-Chapter 10: Conclusion
-======================
 
 In this book, we have explored the benefits of mindful movement for personal growth and physical well-being. We have discussed various techniques for incorporating mindfulness into physical activity, such as yoga, tai chi, meditation, and more.
 

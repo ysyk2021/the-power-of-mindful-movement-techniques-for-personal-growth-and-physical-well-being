@@ -1,5 +1,3 @@
-Tips for Incorporating Mindful Movement into Daily Life
-==================================================================
 
 In this chapter, we will explore practical tips and strategies for seamlessly integrating mindful movement into your daily life. By incorporating these techniques, you can cultivate mindfulness and enhance your overall well-being throughout your day-to-day activities.
 

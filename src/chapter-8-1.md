@@ -1,9 +1,5 @@
-Common Obstacles to Practicing Mindful Movement
-====================================================================================================
 
 In this chapter, we will explore the common obstacles that individuals may encounter when trying to practice mindful movement. By understanding and addressing these obstacles, we can overcome them and embrace the transformative power of mindful movement in our lives.
-
-
 
 Practicing mindful movement can bring numerous benefits to our physical well-being and personal growth. However, it is important to acknowledge that obstacles may arise along the way. These obstacles can hinder our progress and prevent us from fully embracing and experiencing the positive impacts of mindful movement. In this chapter, we will discuss some of the most common obstacles and provide strategies for overcoming them.
 

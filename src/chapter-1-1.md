@@ -1,5 +1,3 @@
-Explanation of Mindful Movement
-==========================================
 
 In this chapter, we will delve into the concept and practice of mindful movement. Mindful movement refers to a conscious and intentional approach to physical activity that involves bringing focused attention and awareness to the present moment. It combines elements of mindfulness and movement to cultivate a deeper mind-body connection, enhance physical well-being, and promote personal growth. In this chapter, we will explore the key principles and benefits of mindful movement.
 

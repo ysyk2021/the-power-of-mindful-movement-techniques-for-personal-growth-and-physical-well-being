@@ -1,5 +1,3 @@
-Recap of Key Points
-===========================================
 
 Throughout this book, we have explored the power of mindful movement and its ability to enhance personal growth and physical well-being. Here are some key points to remember:
 

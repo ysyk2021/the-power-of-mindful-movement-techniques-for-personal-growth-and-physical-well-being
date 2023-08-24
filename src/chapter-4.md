@@ -1,5 +1,3 @@
-Chapter 4: Advanced Mindful Movement Techniques
-===============================================
 
 In this chapter, we will explore advanced techniques for incorporating mindfulness into specific forms of movement, including yoga, walking, and running.
 
